@@ -11,4 +11,4 @@
 Most technical experience is just from prior classes taken throughout school
 so it's all still very much a work in progress
  
-![meme team image :turtle:](https://images.app.goo.gl/8W1yM43ug4xZR3cf7)
+![meme team image](https://streamsentials.com/twitch-emotes/copium/)
